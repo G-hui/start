@@ -1,4 +1,4 @@
 # start
 开始学习了
-i just want to study some skills
-these skills will help me to improve myself
+Hi everyone
+i am here，i want to study some skills to improve myself.
